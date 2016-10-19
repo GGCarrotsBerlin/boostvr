@@ -3,7 +3,6 @@ Boosting health through Virtual Reality
 
 **Team**
 * Robert, E-mail: karpinski@digitalpraxis.de
-* Haily
 
 **Description**
 
